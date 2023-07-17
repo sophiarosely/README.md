@@ -14,7 +14,7 @@ sophialy@ymail.com
  
 <div align="center">
 <h3>💗 Hobbies: </h3> 
-DJ'ing, Traveling, Baking, and Coding
+Weightlifting, Traveling, Baking, and Coding
 </div>
 
 
